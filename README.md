@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rucade
-- 👀 I’m interested in the bitcoin core download and Sparow wallet
+- 👀 I’m interested in the bitcoin core download and Sparrow wallet
 - 🌱 I’m currently learning about it.
-- 📫 How to reach me on Thunderbird caraacara@mailfence.com 
+- 📫 How to reach me on Protonmail  nonotmeagain@proton.me
 - 😄 Pronouns: Roo
 - ⚡ Fun fact: Wild Mustang Rescue 
 
